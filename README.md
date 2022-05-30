@@ -1,7 +1,7 @@
 ## Je suis un homme passionné par absolument tout dans le monde
 
 - 🌱 Je suis en train d'apprendre absolument tout
-- 🥅 2022 Objectifs: Me lancer en tant que freelance
+- 🥅 Objectif de 2022: Me lancer en tant que freelance
 
 ### Mes réseaux:
 
